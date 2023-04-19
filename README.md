@@ -11,7 +11,7 @@
 
 
 🔎프로젝트 상세내용
-바로가기 👉 https://www.notion.so/solwork/Degether-a56b054fdc2a4297996aae121c4224d6
+바로가기 👉 https://rightful-beanie-07e.notion.site/8-Degether-b50e30493ad5420d8c62a160646953d5
 
 
 
